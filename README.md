@@ -7,7 +7,7 @@ THIS CODE IS FOR ONLY EDUCATIONAL PURPOSES ONLY, I AM NOT RESPONSIBLE FOR ANY DA
 
 
 
-## Join My Discord! : https://discord.gg/BSMHbQrmGN
+## Join My Discord! : https://discord.gg/BSMHbQrmGN](https://discord.gg/xYxB9zJYm)
 
 # --------------------------------------------------
 # HOW TO USE:
